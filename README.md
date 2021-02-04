@@ -1,16 +1,13 @@
-### Hi there 👋
+Hi There, I'm Aman✌ 
 
-<!--
-**Amanraj13/Amanraj13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am a CSE student, currently in my first year. I am also a Web Developer (trying to change this to android developer).  
 
-Here are some ideas to get you started:
+How to contact me?  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Linkedin: https://www.linkedin.com/in/aman-raj13/ 
+
+Twitter: @Raj___Aman 
+
+ 
+
+ 
