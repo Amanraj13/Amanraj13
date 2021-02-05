@@ -4,8 +4,6 @@ Hi There, I'm Aman✌
 
 •How to contact me?🗨️
 
-•Linkedin: https://www.linkedin.com/in/aman-raj13/ 
-
 •Twitter: https://twitter.com/Raj___Aman
 
  
