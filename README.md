@@ -1,6 +1,6 @@
 Hi There, I'm Aman✌ 
 
-• CSE student💻 || Year Two || Web Developer 🌍  || ⚙️Open Source Enthusiast || 🇮🇳
+• CSE student💻 || Year Four || Web Developer 🌍  || ⚙️Open Source Enthusiast || 🇮🇳
 
 •How to contact me?🗨️
 
